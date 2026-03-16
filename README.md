@@ -20,4 +20,4 @@ A little about me:
 
 A meme that captures how I feel completing Part A:
 
-![](https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExanEyM2l5d3ZheDY2OWdlZWhvbXZpamI5eThyamtsNnluZW80c2R5ZSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/xnCqpy38g2kHpDT1jV/giphy.gif)
+![](https://static.boredpanda.com/blog/wp-content/uploads/2025/03/cat-memes-catlandscentral-cover_675.jpg)
